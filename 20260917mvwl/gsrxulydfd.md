@@ -1,0 +1,140 @@
+# 贵医记忆 |揭癌之谜女强人——李漪教授（下）
+
+> 更新时间：2026-09-17 (UTC+8)
+
+**编者语：**
+
+      时光荏苒，斗转星移，贵医附院走过了八十余载光辉历程。悠悠岁月，弦歌绵长。历代先贤辛勤耕耘，传华夏之文脉，承岐黄之精髓，跋涉求索，虔诚奉献，铸就今日之辉煌。回望来路，历史脚步清晰凝重，文化传承绵延不绝。展思将来，贵医人不忘来路、不改初心，秉承“诚於己，忠于群，敬往思来”之院训，精勤不倦、博极医源，扎根沃土、服务民众。本栏目每周三定期推出，讲述院史上诸位名医名家故事，从中汲取经验智慧，凝聚行稳致远力量。
+**五、博大胸怀坚强性格**      有人说:家庭，事业二者不可兼顾。李漪对此并不以为然。可是事实上她过了85年的独身生活，把年华、精力，把全身心都贡献给了医学事业。少女时代的李漪，才貌出众，爱神不断地敲着她的门扉，却敲不开她的心扉，有人为她介绍佳婿，可她说:我事业未成，哪有功夫去恋爱、结婚？她自从立志学医，迷上了医学之后，恋爱、婚姻、名利，享受，都在她心目中黯然失色。她数十年如一日地在医学的深海里潜游，觅取保护人类健康，抗灭疾病，探求某些疾病的病源、病理等等方面之秘密，虽然她最终研究的癌瘤、肿瘤迄今还未被征服、消灭，可李漪从培养纯系实验动物，到研究癌瘤的病源、病理诸方面用尽毕生精力，为攻克癌症做出了贡献。作为一位医学家，她的爱是博大的。      在一般人的心目中，“老小姐”总难免有缺乏人情味之类的怪僻。而李漪倾注感情的方式可能有些不同一般，留给我们印象最深的是对我们实验室的同仁，言传身教，严格要求。从研究员到实验员，从教师到学生，都要求严格。在工作上、治学上，惟恐由于她的松弛贻误我们这一班人，在实验室，从瓶瓶罐罐到实验记录，科研进展情况，都有日志，她无一不逐日检查、过目。对每个人的工作都有指导、检查。这一套细密、严格的科学管理，有的人觉得“受不了”。但搞科学就得一丝不苟。一个小小环节的疏忽，可以影响全局，不仅要这样执行，而且要培养成习惯，培养成一种精神，每周她都要在室内主持一次学术性研讨会，要求每个科技人员都提出问题、心得，进行讨论，相互切磋。她认为提不出问题的研究人员是不称职的，至少是学术思想迟钝的一种表现。她非常欣赏善于提问的人，她倾听大家提出的问题，让大家相互解答、答辩，争论，人人发言。她赏识那种能够言人所不能言的人。最初大家不大适应，甚至觉得有“压力”。她强调:压力不可少。大家明白了她的用心在于培养年轻一代学者的科学态度和科学敏感，就无不心悦诚服地按她的要求去努力。久之，全室树立起紧张而有秩序的工作作风，活跃而富有生机的学术空气。
+
+      从外表、言行举止看来，她有些古板、冷峻；有些人提到“老小姐”，总容易想到孤僻、寡情，而她却富于感情，富有人情味。最突出的是对病人的理解，同情，愿意分担病人痛苦的那种虔诚。她常说:不懂爱的人就不配当医生。她无条件地到病房去陪伴病人，聊聊天，对病人的同情、爱护，理解的“自然反射”使病人觉得她像大姐、妈妈、奶奶，病人点名要她看病，说:“我相信李大夫!”实验室一位同志家乡遭水灾，老家人生活困难，她立即汇款去；一位女同志领了工资，被小偷扒窃了，焦急万分，李漪拿出钱来填补，劝那女同志别着急，今后小心就是。最有意思的是她对青年同志们的男婚女嫁，生儿育女，从不疏忽，总要送份礼物，表示庆贺。她还很好客，朋友来了，亲自下厨，招待吃饭、喝茶；偶尔还要凑成一桌，打桥牌。她牌艺高，打得很精，但总以一小时为限。20世纪50年代天津越剧团演的《梁山伯与祝英台》、《红楼梦》、《西厢记》，她听得津津有味。据说一般“老小姐”多半不喜欢小孩子，但她对侄女的儿子赐名李陆(因为孩子的父亲姓陆)视为嫡孙。日后祖孙俩相处得格外亲热，祖母叫孙儿“男娃子”，孙儿竟叫祖母“女娃子”。李漪从不失童稚之心，令人终身难忘。记得在她 60岁那年，医学院举办新年同乐会，实验室编演了一个小话剧，她扮演一位保健站大夫，演得很洒脱自如，观众夸她是出色的“本色演员”!      她的婚事，像年龄问题一样，不准人提及。她终身不婚的“秘密”最忌别人询问，但最终还是由她自己揭示出来。那是在家里，与孙子李陆和侄女李华一起看到电视里小青年卿卿我我，早恋早婚时，她感慨地说:“真不像话，年轻人怎么不搞点事业呢?”小孙子李陆在旁答话了:“小妮子(孙子对奶奶的爱称)倒是搞事业了，到现在也不结婚。”这时，只有这时，孙子说她的时候，她才咯咯地乐了，指着孙子的小脑袋:“我并不是有生理缺陷不结婚，而是因工作‘忘’了，过了‘站’了。”她确实因事业而误了婚姻。从20世纪50年代到20世纪60年代初，那一段黄金般的闪光岁月，工作顺利，生活安定，令人难忘。      “文革”开始后，一顶“资产阶级反动学术权威”的荆冠落到了她的头上。挂牌批斗，游院示众，关入牛棚，打入劳改队，暴徒们涌进家门，以破“四旧”为名，行打砸抢之实，砸坏了红木家具，抢走了一批珠宝，其中有钻石戒指、翡翠耳环、珍珠项链，还有 6 两黄金(后来落实政策给予了不足千分之一的“收购费”)。李漪一生讲求自爱、自尊、自重，如何承担得起这样的风险和损害呢？但出乎意料之外的却是她的平静、豁达。她开导宽慰侄女李华说:“人的一生不能都走在平康大道上，受点磨难没啥了不起。”而她惟一担心的是用心血培养的纯系动物和十几年兢兢业业建立起来的实验室。那时候确实已有人嘁嘁喳喳，说什么:养耗子有什么学问？把耗子养得这么娇贵，比资产阶级还资产阶级！有人还竟然要砸鼠罐。“不能砸！小鼠何罪?砸我可以，不要砸小鼠。纯系小鼠是科学实验的重要工具，也是衡量科研成果的一杆秤。砸了我，世界依旧前进；砸了小鼠，就要断代，科学实验就无法进行了。”李漪激愤地出来阻止。不过学院里大多数的学生、教师、工作人员都知道李漪是国内外有名望的医学家，在医学上造诣很深，贡献卓越，所以总有人暗中保护她，保护实验室，尤其是本室的研究人员、工作人员，尽心尽力，甚至冒着引火烧身的危险，坚持工作，坚持李漪教授确立下来的科学管理，保护着纯系小鼠一代一代生殖繁衍，老教授李漪得知这一切，又高兴又激动地说:只要“命根子”保住了，我们的事业，研究室复兴有望，我个人有什么可悲、可计较的。李漪坚强地挺住了各种各样的人身侮辱，迫害和折磨。不过，人毕竟是肉体凡胎，残酷的现实，力不从心的劳动，严重地摧残了她的健康。在一次繁重的劳动之后，引发了她原有的胃病，大口大口地吐血，直到力竭体衰，昏迷不醒。经抢救脱险，军宣队批准她回家休息。云南路的住宅早被人强占了，她被挤到了二楼才十来平米不向阳的小房间里，略微整理便开始看资料，读书。古代的颜回“身居陋巷，一箪食，一瓢饮，人不堪其忧，回也不改其乐”。从李漪身上，看到了中国知识分子的传统！      1976 年唐山大地震波及天津，李漪冒着余震中房倒屋塌的危险，从云南路的家里步行到甘肃路医学院，爬上三楼的实验室，查看实验动物是否安全。学生们为她建起了防震棚，她首先把小白鼠和必不可少的实验设备迁进防震棚。她认为:只要实验室完好，近80代的纯系小鼠安然无恙， 她就是“九死一生”也义无反顾！      十一届三中全会后，迎来了科学的春天。年近八旬的李漪教授欢欣不已，工作更加劲头十足。学院领导鉴于她年事已高，胃溃疡的宿疾又未能根治，一再请求她不要再到学院去上班，大家也决定有事登门求教，没想到这一决定惹恼了她。她说:我的工作离不开实验室，离不开小白鼠，我要教学，离不开课堂讲台。最后，她只答应了学院派汽车接送的安排，而她总是带着饭盒，中午在学院进餐，为的是节省午间的一趟汽车接送，既节省司机的劳力，又节省汽油。她就是这样事无巨细，从不为自己打算，爱人、爱国的拳拳之心令人感佩!李漪最忌言“老”，老教授、老大娘、老奶奶，这些称谓她都反感。不知情的人问她“高寿”，她气狠狠地回答:“有好几百岁啦!”有一次，她的好朋友金显宅教授“犯忌”了，她就生气地用英语“回敬”金教授，俩人用英语在实验室里吵了一架，把大家逗得不禁掩口而笑。事后她说:“我不喜欢老，而喜欢青春长驻，因为我有许多工作要做，许多新鲜的课题在吸引我!”      20世纪70年代末，她进入了耄耋之年。“老骥伏枥，志在千里”。在她的领导下，肿瘤病理的研究，实验动物学的研究都扩大了，并且确定了几个重要的课题和研究项目，又亲自招收了几名研究生。3月里的一天，她为研究生讲完课从四楼下来，才下到三楼就摔了下来，头撞在地上，腿脚也扭伤了。可是当人们发现的时候，她一声不吭地坐在地上，并且坚持要回家自行养伤。医学院著名的老教授受伤住院，谁都会认为是顺理成章的事情，可是谁也不能说服她。俗话说:伤筋动骨一百天，而坚强的她，自行休养了不多日子，居然就能行动，就能自己料理自己的生活，就要高高兴兴准备上班去了。不料就在准备到学院去的头天晚上，忽然大口大口地吐血，胃部剧烈疼痛，不得不住院救治。不久，吐血停止了，疼痛也消失了，又坚决要求回家。老人消瘦得不像样子，大家无不心疼。可是她照着镜子，顾盼自豪地说:“好了，没事了，可以准备上班去了!”就在她再度准备重返教学科研岗位的当晚，又犯病了，再度入院，病情十分严重，大夫们尽力抢救，不得已做了急救手术。当她从麻醉中苏醒以后，就叫人给她眼镜和这几天来的报纸，大家都庆幸她的病情又有了好转。
+
+      1982 年 4月初，荷兰国家肿瘤研究所著名专家黑格教授到天津讲学。他对李漪教授一向很尊崇，恳切要求看望重病住院的李漪教授。他说:“建立纯系动物的鼻祖是美国学者 C·C·勒特，他的同事当今尚在世的，就只有李漪教授了。”黑格在他近年的关于培养纯系动物的专著中，提到世界培养纯系动物的权威时，李漪教授的名字是紧挨着勒特的，所以，他一定要去看望李漪教授，哪怕是只见上一面。李漪得悉黑格教授要来看望她，十分激动，要起身下榻相迎，但她刚手术不久，鼻，口及身上插满了输血管、输氧管、输液管、引流管，许多功能都有故障，只是精神还可以。她觉得异国同行的盛情难却，而且还抱着交流切磋的愿望，便约定 4 月 9 日上午在病房相见。      1982 年 4 月7 日，李漪教授生命垂危，大家都沉浸在悲痛之中，但她神智仍极清楚，还对守护在她身边的李华和李陆叮嘱说:“通知亲友，同志，不要说得那么严重，只需说:我不健旺就行!”8日黄昏，她已进入弥留之际。翌日，黑格教授闻悉李漪已去世，深为沉痛和惋惜。他要求把李漪的最新论著带回去发表，并为她写悼念文章，纪念为新中国培养纯系动物的创始人、我国医学研究领域中的女强人。
+
+**李漪教授任贵阳医学院病理科主任期间发表的学术论文。**      李漪虽然与世长辞了。但她却为我们留下了宝贵的财富。经她亲手培育和在她指导下培育的纯系小鼠已不是两个系，而是五、六个系。在长达四分之一的世纪，这些小鼠给人们留下许许多多的研究资料。这些非常宝贵的资料，已装订成百十来册。有的已制成卡片，有的留下照片及幻灯片。李漪教授曾说过:“对研究癌瘤来说，这些从实验中得来的材料都是非常宝贵的。它使人们相信：癌瘤发生的谜底终究是会被揭穿的，征服癌症的日子不会很远了。”（完）
+
+       李漪（1897～1982），山西昔阳人，著名肿瘤学专家、医学教育家，中 国培养纯系动物的创始人。1926年协和医学院毕业。1939年7月任贵阳医学院第三届病理科主任。1945年3月升为病理科教授，教授病理学课程。1945年赴美留学。后任中国医学科学院教授，在天津医学院建立我国首个实验肿瘤研究室，任主任。
+
+**本文选自《近代天津十二大名医》，中国人民政治协商会议天津市委员会文史资料委员会编，2002年8月出版，作者穆明。**作者：穆明编辑：周亮一审：夏天 徐田 戚联贵二审：周亮 张峰三审：吴祥文 黄宁玉
+
+**欢迎扫码关注**
+
+## 相关阅读
+
+- [双角子宫是否会影响生育？医生揭示解决方案了吗？](https://github.com/olvqsk2upx/family-health-notes/blob/main/20260910sfpo/upqfpsmkrk.md)
+- [三级胚胎有必要养囊吗[试管婴儿]](https://github.com/qnifxoey3y/child-care-essays/blob/main/20260910bkmr/olliedllyj.md)
+- ["哪里找"武汉三代试管是一定是孩子的吗](https://github.com/xeatwgpqt3/child-care-essays/blob/main/20260910klje/gtmtkizwun.md)
+- [怀孕两个月胚胎有多大呢](https://github.com/hhd0wt4kzq/pregnancy-care-hub/blob/main/20260915lnyt/kfinubfelf.md)
+- [医闹者，国家级“封杀”来袭！就问你怕不怕！](https://github.com/q0w8rdniez/parenting-skills-log/blob/main/20260916bxdx/poftikqziv.md)
+- [心力衰竭的具体症状](https://github.com/l5q2j5iic2/mommy-baby-notes/blob/main/20260915ticx/qbzgputjyk.md)
+- [试管快问快答（一）| 99%试管患者都问过这些问题，为你解答疑惑开启试管征途！](https://github.com/zzlh7l287z/child-development-log/blob/main/20260916sgfb/hrgsihpaio.md)
+- [「动态」市中心医院静疗团队省研讨会上绽风采](https://github.com/zzlh7l287z/child-development-log/blob/main/20260911vuqx/nzohaewgce.md)
+- [青岛三代试管条件正规医院排名比较新汇总](https://github.com/e1ljyri8rs/pregnancy-care-hub/blob/main/20260910vbot/ldijhxasga.md)
+- [右边小腹疼的厉害怎么回事](https://github.com/olvqsk2upx/family-health-notes/blob/main/20260915nmps/sjfvkwjufn.md)
+- [刘春文受邀参加医院高质量发展管理论坛并作专题讲座](https://github.com/hhd0wt4kzq/parenting-daily-tips/blob/main/20260916zxgy/dxjggimqcs.md)
+- [人文二院 | 情满双节 感恩有您：昆医大附二院科室欢度中秋国庆](https://github.com/bjpnmb0r46/pregnancy-care-essays/blob/main/20260916kgxq/ltdyjgdopj.md)
+- [母亲节限时优惠，最高立减10000元，更多惊喜等你发现，赶快来约！](https://github.com/w0coyna3rx/child-care-essays/blob/main/20260916kvby/assrysgkvl.md)
+- [吃黑色葡萄的好处](https://github.com/ddk2koak3u/family-health-notes/blob/main/20260915rozq/uqrqpmxvjl.md)
+- [孕妇初期吃什么对胎儿好呢？](https://github.com/oizha1rquq/family-baby-log/blob/main/20260915xyba/vivwxqovuh.md)
+- [美国试管婴儿全攻略秘籍分享](https://github.com/cfo5j5htmg/mother-baby-diary/blob/main/20260911ciyb/xhtbjdvytz.md)
+- [支原体肺炎高发，我们该怎样做？](https://github.com/o8mgbpui8y/family-health-notes/blob/main/20260916diik/qwzacupazv.md)
+- [爱耳月系列（三）：新生儿听力筛查](https://github.com/bx6ti255zt/child-education-notes/blob/main/20260916ypwa/bgrrvadufm.md)
+- [试管移植囊胚成功后什么反应-囊胚移植6天成功的征兆](https://github.com/h5z4rt20ta/child-care-essays/blob/main/20260915dwot/aabjasbrxg.md)
+- [百年瞬间 | 上甘岭战役与《我的祖国》](https://github.com/p35ieeld8a/child-care-essays/blob/main/20260917ogbo/rzsorsgmuk.md)
+- [庆祝国庆、致敬军人、关爱“功臣”](https://github.com/vdzzg6wfu2/mother-baby-diary/blob/main/20260916tvae/hxbztsclxp.md)
+- [子宫最怕的八大杀手](https://github.com/olvqsk2upx/family-health-notes/blob/main/20260916oxro/aiemyluine.md)
+- [原创农科院挂科作业曝光，网友：上面的玉米粒都赶不上我96岁太奶嘴里的牙多……](https://github.com/lq2k5x6kqh/infant-nutrition-hub/blob/main/20260911jouw/zuuqptehen.md)
+- [乙肝可以结婚生孩子吗](https://github.com/whprpfn9bc/pregnancy-care-hub/blob/main/20260915ouig/whofgxvxyn.md)
+- [女性染色体异常能做试管婴儿吗](https://github.com/helxwyn5td/baby-care-essays/blob/main/20260911xgac/ilxgfqjjif.md)
+- [河北医大二院消化内科入选国家中西医协同“旗舰”科室建设项目](https://github.com/t4im9r1jji/toddler-activity-ideas/blob/main/20260916krbn/dsqkuolvdo.md)
+- [生死抢救︱重度胎盘早剥命悬一线  医生生死时速守护母婴平安](https://github.com/zntce2ojnh/mommy-baby-notes/blob/main/20260916ruqd/fdukqkcyto.md)
+- [[我来推荐]长沙三代试管价格表](https://github.com/b1xp80vbpv/baby-care-journal/blob/main/20260910yxpu/mvzodpjpna.md)
+- [广东省第二人民医院染色体筛查试管：费用构成全拆解，明明白白花钱](https://github.com/l0mxvbb0j0/family-health-notes/blob/main/20260910ihff/dfisqcmisy.md)
+- [【来点干货】到底什么样的卵泡才是“好卵泡”？](https://github.com/ws96ngpo3u/maternal-health-hub/blob/main/20260911ncks/acjgfdfqht.md)
+- [卵泡发育不良怎么治有效](https://github.com/y9qvvxks1i/baby-care-journal/blob/main/20260915zlpd/twivwkmzip.md)
+- [天津市肿瘤医院赵鹏教授受聘担任河北省沧州中西医结合医院消化道肿瘤中心名誉主任兼学科带头人](https://github.com/zzlh7l287z/infant-nutrition-hub/blob/main/20260911cytf/gciyiichdj.md)
+- [佛山生殖健康医院做无卵试管流程，详细步骤速阅](https://github.com/w4nejibsgs/family-health-notes/blob/main/20260910hcpx/xsvekhxniq.md)
+- [摆脱悲剧腿型七招让你瘦出麻豆美腿](https://github.com/z4addypged/new-parent-notes/blob/main/20260911tqpy/yctlkyvdmz.md)
+- [阳泉市试管费用低至多少？单身女性成功率解析](https://github.com/p35ieeld8a/family-health-notes/blob/main/20260910hscp/yhdmpdjbzt.md)
+- [梦见自己或别人生孩子有什么预示 做梦是怎么回事_梦见自己或者别人生孩子代表什么](https://github.com/ij0s3j0vss/parenting-daily-tips/blob/main/20260915wrwn/jojcurngla.md)
+- [【孕妇/育儿学校】 “儿童贫血、佝偻病防治”“孕晚期保健”周六起开讲](https://github.com/ualf0k98cv/pregnancy-care-hub/blob/main/20260916wcho/uewnqxktiz.md)
+- [怀孕初期积液怎么回事](https://github.com/qnifxoey3y/mommy-baby-notes/blob/main/20260915piri/qfmwlzgohm.md)
+- [软骨发育不全症常见症状](https://github.com/zntce2ojnh/child-care-essays/blob/main/20260915dqqs/bfefsowdey.md)
+- [怀孕初期可以吃肯德基吗](https://github.com/w15ezo8wwd/parenting-skills-log/blob/main/20260915gsxl/lunhigctjq.md)
+
+## 推荐站点
+
+- [助孕试管电话-青岛试管婴儿的具体费用，各项花费清单一览](https://www.skiguo.cn/20250927-79.html)
+- [宁波能做私人供卵哪里最多的私立医院,私人供卵哪里最多成功率前十医院名单](https://www.anyhdlyb.cn/1685688093073.html)
+- [杭州第三代辅助生殖技术是什么？三代试管适用人群与筛查范围全指南](https://www.sdjiaxin.net/641.html)
+- [['https://www.hongyuhuagong.cn/23055549152666.html', '2026年试管机构费用明细与助孕选择指南']](https://www.hongyuhuagong.cn/23055549152666.html)
+- [['https://www.cxit.com.cn/daiyunmama/14165.html', '长沙代孕医院服务,2026长沙试管私立医院有*吗？长沙私立试管机构技术资质公开']](https://www.cxit.com.cn/daiyunmama/14165.html)
+- [北京试管婴儿哪家好成功率是多少](https://www.hg00fj88.com/2153.html)
+- [运城有多囊卵巢综合症的女人可以做试管婴儿吗？决策辅助](https://www.vecsi.cn/2750.html)
+- [太不可思议😯女生开始多囊一眼看穿，巨显丑,国内供卵的流程&代孕中心那里比较好](https://www.xmxinyhwzhs.cn/17842894150629.html)
+- [广州助孕好去处：精选正规代生与供卵代怀医院](https://www.dhsuzouzy.cn/14010155912395.html)
+- [贵阳借卵代生子医院排行榜及代生包生男孩费用明细解析](https://www.haojiezhishi.cn/12.html)
+- [['https://www.xcktgpm.cn/20250823-172.html', '失独家庭再生育：医学路径与代生供卵方案解析']](https://www.xcktgpm.cn/20250823-172.html)
+- [代生孩子价格:13号染色体异常会怎样（染色体异常）](https://www.sgdaiyun.com/320645833095.html)
+- [如何选择可靠供卵机构与试管技术指南](https://www.chengyanghg.cn/334.html)
+- [解析生育力保存技术：三代试管助您明智选择](https://www.uueamru.cn/20250821-116.html)
+- [遵义试管成功率的医院排名？遵义试管成功率的医院排名最新](https://www.luruihang.com/2351.html)
+- [试管供卵助:试管一次性成功的一点经验](https://www.phetpalace.com/501.html)
+- [广州三代试管婴儿费用揭秘：15](https://www.monpun.com/6323606201692.html)
+- [宫颈粘连做代生高龄试管成功率高不，伊春不抛弃不放弃](https://www.sdxxy.cn/20250509-443.html)
+- [['https://www.lianhuahushengqun.cn/110115453017.html', '天津私人试管代孕妈妈,天津二胎政策有补贴，3分钟搞懂奖励细则、费用标准']](https://www.lianhuahushengqun.cn/110115453017.html)
+- [辽宁供卵试管成功率前十医院榜单，附2026供卵三代生男孩流程一览](https://www.tjsjyongsheng.cn/219264751332.html)
+- [成都试管哪家好？四川省妇幼生殖中心就诊指南与成功率数据参考](https://www.njxxwcr.cn/shiguandaishenggongluan/150.html)
+- [宝宝第11天迎来翻倍喜讯，我的辅助生殖旅程](https://www.cddyunw.com/421771660401.html)
+- [深圳三代试管费用解析：私人医院包生女孩价格真相](https://www.chengdusokh.cn/314175940093.html)
+- [国内供卵代怀生子,私人生殖助孕公司服务, 卵巢早衰多吃海带和丝瓜](https://www.gaodunxinkj.cn/20250511-171.html)
+- [试管婴儿移植前可以同房吗?](https://www.jszgyh.com/306444969559.html)
+- [深圳第三代代生子机构包男孩双胎费用(深圳三代代生子机构包男孩成功率)](https://www.dgshengxigongchengsl.cn/1579073415148.html)
+- [['https://www.super-hn.cn/135083579269.html', '湛江三代试管婴儿费用深度解析：价格构成与选择指南']](https://www.super-hn.cn/135083579269.html)
+- [甲状腺抗体TPOAb偏高会变笨？孕期一定要盯紧这项指标，关乎宝宝智力](https://www.hflrwzhs.cn/170.html)
+- [孕期总胆汁酸高 成功翻盘,坤和代孕专业机构](https://www.fmngst.com/2386470895414.html)
+- [上海助孕生儿子,上海中山医院怎么预约？乘车路线又是什么？](https://www.qumengru.com/224604501297.html)
+- [['https://www.szgwzx.cn/171.html', '代孕准备事项与供卵试管费用解析及单身女性允许国家指南']](https://www.szgwzx.cn/171.html)
+- [先天幼稚子宫做试管供卵指南最新成功率评估,什么是幼稚子宫](https://www.xnnpbhdz.cn/21480651650118.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250427/6258.html', '中国哪里可以供卵啊_做三代试管代孕痛苦吗,试管移植前查了子宫内膜窗口期就']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250427/6258.html)
+- [什么是第四代试管婴儿呢](https://www.jmxmintuhg.cn/20250329-128.html)
+- [['https://www.rongyixueyuan.com/111.html', '经济实惠的代孕选择：2026年广州第三代试管婴儿医院概览，助您实现家庭梦想']](https://www.rongyixueyuan.com/111.html)
+- [['https://www.xczxcy.com/20.html', '美中宜和顺产转剖腹产经历：私立医院生产到底值不值？']](https://www.xczxcy.com/20.html)
+- [武汉私立妇产医院试管成功率解析：一次成功的机会有多大？](https://www.satghenga.cn/115380341347.html)
+- [手术后身体虚弱吃什么](https://www.fyluanpu.cn/329654798590.html)
+- [借卵试管代怀：二甲双胍与空卵泡的调理及子宫穿孔风险](https://www.weywjei.cn/20250826-178.html)
+- [代生价格-hcg孕酮对照表能够反应哪些问题](https://www.dyokx.com/zhuyunxiangmu/13.html)
+- [拉萨做试管的医院预约流程，第一名技术全面成功率高,试管代孕案例](https://www.zrbbavaq.cn/16798478751056.html)
+- [['https://www.airpoolmall.com/116.html', '上海代生孩子如何上户口？2026法律解读与实操难点']](https://www.airpoolmall.com/116.html)
+- [['https://www.wahuobao.com/16.html', '试管婴儿是否导致卵巢早衰：科学揭秘']](https://www.wahuobao.com/16.html)
+- [北京备孕晚上同房好还是早上好？二胎备孕注意事项分享](https://www.sdwmtgccl.cn/25330863627960.html)
+- [武汉康健医院供卵要等多久？卵源等待时间与条件要求解读](https://www.apkbwvg.cn/zhuyungonggao/169.html)
+- [代生公司正规:amh值1.68为卵巢早衰吗？如何来判定卵巢早衰？](https://www.qzmx56.com/378.html)
+- [云南省试管助孕生宝宝费用总共多少,代孕试管包成功](https://www.bjwdzxkj.cn/1756910659051.html)
+- [沈阳拉拉试管,深圳拉拉试管](https://www.bjfhyly.com/884.html)
+- [['https://www.zixigou.com/1.html', '上海天伦医院试管助孕攻略：费用标准与医生优势深度测评']](https://www.zixigou.com/1.html)
+- [代孕供卵是什么, 试管婴儿打hmg能促进卵泡发育一天可生长1mm吗？](https://www.vhpowpj.cn/20250601-173.html)
+- [['https://www.cheguangfu.cn/229.html', '北京去做三代试管靠谱吗？帝都公立、私立助孕机构优劣势全解析']](https://www.cheguangfu.cn/229.html)
+- [辽宁试管排名前十名的医院汇总榜揭晓！辽宁省能做试管的医院！](https://www.sandwnot.com/209610063503.html)
+- [代生宝宝网,代怀在线咨询,试管促排和促排卵一共多少钱？试管婴儿从促排到促排卵多长时间？](https://www.syldezdhkj.cn/19648806156675.html)
+- [试管婴儿怀孕后的b超检查及所用，试管盲移和b超下移植](https://www.3899234.com/20250927-56.html)
+- [三代试管科技辅助生殖技术，有利于筛查这些疾病](https://www.bjjinyukechuangzdh.cn/51.html)
+- [做试管婴儿需要多少钱啊](https://www.mymydz.cn/117150755121.html)
+- [着床不稳的征兆](https://www.hs52.cc/sandaigongluandaihuai/75.html)
+- [郑州供卵代怀费用明细与正规医院选择指南](https://www.wqxmm.cn/201845706405.html)
+- [囊胚移植第17天验血hcg130是怀孕成功？](https://www.dyqlsu.com/20251014-104.html)
+- [2026年供卵试管费用明细与三代生男孩流程全解析](https://www.chdhaishendq.cn/219224063429.html)
+- [正规试管代怀:2次稽留流产可以做试管-稽留流产两次去做什么检查](https://www.mimi567.com/82.html)
+- [石家庄代生官网,私人找供精,石家庄没有子宫可以找渠道代替试管吗,开启美好生活新时代](https://www.afa2019.com/114920444160.html)
+- [代怀孕网费用-产后月经量多的症状,产后月经量多的原因](https://www.dymgp.com/7892.html)
+- [广东深圳三代试管婴儿费用大概5万到25万？](https://www.gyzhixiao.cn/387.html)
+- [兰州做代生的花费成功率很高的医院排名前十公布](https://www.cmanrxrr.cn/3679824761223.html)
+- [试管生子助孕，三代试管助孕囊胚质量如何_三代试管助孕囊胚质量如何](https://www.cndcxc.com/daiyunmamai/20251021/16929.html)
+- [多囊卵巢供血用什么药（多囊卵巢用药）](https://www.jzcwjz.net/173.html)
+- [供卵试管费用解析：合法合规是关键](https://www.szanguangkeji.cn/tongxingshiguanzhuyun/145.html)
+- [['https://www.bubustuff.com/103.html', '江西助孕网官方电话查询：快速预约专家面诊通道']](https://www.bubustuff.com/103.html)
+- [二代试管ICSI能选男女吗？别被忽悠了，技术原理告诉你真相](https://www.bkudgf.cn/168.html)
+- [孕中期胎儿8号染色体异常会对孩子造成哪些影响？](https://www.cecigou.cn/chuanchengguojidaiyun/20250928/15004.html)
+- [21号染色体高风险？探讨异常孩子的生育选择与助孕方案](https://www.huaiyunq.cn/309224641362.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
